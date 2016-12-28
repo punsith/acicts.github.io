@@ -10,7 +10,7 @@ which rose from the ashes as majestic as ever. The change was made necessary by 
 all things related to ICT not just computing.
 
 This syte is under devaloping 
-If you have any sugestions to this page plese contact Nadun Yashmika (nadunyashmika@gmail.com) or Just make a PR ;)
+If you have any sugestions to this page plese contact Nadun Yashmika (yashnadun@gmail.com) or Just make a PR ;)
 
 PLUZ : https://www.facebook.com/Pulz.ACICTS/
 Our facebook : https://www.facebook.com/acicts
